@@ -1,0 +1,6 @@
+Here’s what you need for the cheesecake crust – just plain sweet crackers (any type will do – loads of options listed in the recipe) and butter (the glue).Blitz to make crumbs (or bash a ziplock bag with a rolling pin – very therapeutic), mix with butter then press into the cake pan. Here’s what goes in the cheesecake filling. Standard baked cheesecake ingredients, with the addition of blueberries. Here’s how the filling is made and baked. The cheesecake filling is very straightforward to make – everything just gets mixed in a bowl, poured into the crust then baked. The cake is cooled in the oven for two reasons:
+
+If you cook the cake all the way through in the oven, it puffs up too much which causes surface cracks; and
+To keep the cheesecake creamy inside. The oven is turned off before the cake is fully cooked, then it finishes cooking in the turned off oven. The gradual drop in temperature creates an environment such that the cheesecake finishes cooking but cannot overcook.Here’s what you need for the blueberry topping: We cook some of the blueberries with the sugar, lemon and vanilla so they break down to create the vibrant purple sauce.
+
+Then stir in cornflour/cornstarch to thicken, and lastly stir in whole blueberries.
